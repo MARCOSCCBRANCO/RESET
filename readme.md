@@ -8,3 +8,5 @@ VIDEO RUIM
 
 gauhbngaouignaoiuga
 
+uma loucura isso
+
